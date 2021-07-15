@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Xplayer1902Plays
+- 👀 I’m interested in Roblox
+- 🌱 I’m currently learning How to code in roblox
+- 💞️ I’m looking to collaborate on making a Roblox game
+- 📫 How to reach me on discord Xplayer1902#6654
